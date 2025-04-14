@@ -8,6 +8,8 @@ The trees will sing, the hills will sigh,
 The morning breaks as birds take fly.
 Their whispers dance and kiss the sky.
 
-[Your closing stanza here]
+The day at start so peaceful feels,
+As men awake and get on their heels,
+To start their work until the evening reels.
 
 [Your Name]
